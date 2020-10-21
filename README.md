@@ -2,4 +2,4 @@
 
 
 ## Lien Discord
-https://discord.gg/RskE6d
+https://discord.gg/V5gNSM2
