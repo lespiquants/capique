@@ -2,5 +2,5 @@
 
 
 ## Lien Discord
-https://discord.gg/hnQXPW
+https://discord.gg/NwJ2hE
 
